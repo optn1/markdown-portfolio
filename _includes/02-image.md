@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Gawr Gura](https://shop.dexclub.com/imgs/31592/1/Gawr+Gura+Birthday+2021+Commemorative+goods+complete+pack)
