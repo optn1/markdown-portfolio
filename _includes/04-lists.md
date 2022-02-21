@@ -1,6 +1,6 @@
 🦈
 🕵️‍♀️
-Gawr Gura
-Amelia Watson
+*Gawr Gura
+*Amelia Watson
   Blond Hair
   Kind
