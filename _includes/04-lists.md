@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+🦈
+🕵️‍♀️
+Gawr Gura
+Amelia Watson
+  Blond Hair
+  Kind
